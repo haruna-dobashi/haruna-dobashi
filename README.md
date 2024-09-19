@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @haruna-dobashi
-- 👀 I’m interested in baking.
+- 👀 I’m interested in User Experience design.
 - 🌱 I’m currently learning design and how to manage social media. I want to learn more about AI to work more efficiently.
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
